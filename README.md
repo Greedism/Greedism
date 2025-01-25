@@ -6,4 +6,4 @@
 
 ![](https://files.catbox.moe/0i5v4w.gif)
 ##### [Rentry](https://rentry.co/FujiwaranoMoku)ㅤㅤㅤㅤ[Strawpage](https://medangel.straw.page/)
-##### [Atabook](https://lampert.atabook.org/)ㅤㅤㅤㅤ[Neospring](https://neospring.org/@p.ai.nter)
+##### [Atabook](https://mokou.atabook.org/)ㅤㅤㅤㅤ[Neospring](https://neospring.org/@p.ai.nter)
