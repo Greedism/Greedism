@@ -1,7 +1,7 @@
 ⠀<div align="center">
 
 
-![](https://komarev.com/ghpvc/?username=Greedism&color=f9f5d0&style=plastic&label=Customers!&base=2990)
+![](https://komarev.com/ghpvc/?username=Greedism&color=f9f5d0&style=plastic&label=Visitors!&base=2990)
 
 
 ![](https://files.catbox.moe/yz1qcw.png)
