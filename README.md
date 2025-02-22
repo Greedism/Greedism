@@ -1,5 +1,4 @@
 ⠀<div align="center">
-
 ![](https://files.catbox.moe/o6iyy6.png)
 
 ![](https://komarev.com/ghpvc/?username=Greedism&color=f9f5d0&style=plastic&label=Visitors!&base=2990)
