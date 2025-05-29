@@ -1,6 +1,6 @@
 ⠀<div align="center">
 
-![](https://komarev.com/ghpvc/?username=Greedism&color=c9e4b9&style=plastic&label=Viewers&base=2990)
+![](https://komarev.com/ghpvc/?username=Greedism&color=85ccac&style=plastic&label=Viewers&base=2990)
 
 ![](https://files.catbox.moe/7ay11b.gif)
 ##### [Rentry](https://rentry.co/FujiwaranoMoku)ㅤㅤㅤㅤ[Strawpage](https://medangel.straw.page/)
